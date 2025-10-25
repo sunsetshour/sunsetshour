@@ -1,5 +1,6 @@
 ![Untitled883_20251012123306](https://github.com/user-attachments/assets/052fed12-3fc0-4fae-bc9e-38b72ffa84e0)
-
+I love ALL my friends
+, i am not mean INT!!
 
 <!--
 **sunsetshour/sunsetshour** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
