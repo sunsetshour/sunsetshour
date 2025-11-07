@@ -1,9 +1,11 @@
-![Untitled883_20251012123306](https://github.com/user-attachments/assets/052fed12-3fc0-4fae-bc9e-38b72ffa84e0)
-I love ALL my friends
-, i am not mean INT!!
+
+<img width="1280" height="785" alt="Untitled1116_20251106201825" src="https://github.com/user-attachments/assets/c3b3cfc3-b5e4-4246-8537-5bce1ad5a91e" />
+
+had to make this cause 1.i was bored 2. ur getting way to weird 
 
 <!--
-**sunsetshour/sunsetshour** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+**sunsetshour/sunsetshour** is a ✨ <img width="1280" height="785" alt="Untitled1116_20251106201825" src="https://github.com/user-attachments/assets/b26dde9c-a07a-411b-9608-bdd28236ed2a" />
+_special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
 
