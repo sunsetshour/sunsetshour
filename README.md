@@ -1,7 +1,5 @@
 
-<img width="1280" height="785" alt="Untitled1116_20251106201825" src="https://github.com/user-attachments/assets/c3b3cfc3-b5e4-4246-8537-5bce1ad5a91e" />
-
-had to make this cause 1.i was bored 2. ur getting way to weird 
+wip
 
 <!--
 **sunsetshour/sunsetshour** is a ✨ <img width="1280" height="785" alt="Untitled1116_20251106201825" src="https://github.com/user-attachments/assets/b26dde9c-a07a-411b-9608-bdd28236ed2a" />
