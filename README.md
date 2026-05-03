@@ -1,5 +1,9 @@
+<img width="828" height="824" alt="IMG_8371" src="https://github.com/user-attachments/assets/1c3085a7-023d-4a85-a281-c41f5b1a0375" />
+<img width="2598" height="401" alt="IMG_8373" src="https://github.com/user-attachments/assets/44f4c541-c6e2-46bd-8a71-5adcdf5098f7" />
+By the way ! i am not a proshipper some dumbass thinks im a diff person and got mad that i told them i wasn't the right person so..LOL? also plz stop telling my friends lies because youre only embarrassing yourself like wdym my friend got told that i was talking about them on pt when i haven’t been active on pt for 3 months now HELP. stop BEING WEIRD!! peace & love
 
-wip
+
+
 
 <!--
 **sunsetshour/sunsetshour** is a ✨ <img width="1280" height="785" alt="Untitled1116_20251106201825" src="https://github.com/user-attachments/assets/b26dde9c-a07a-411b-9608-bdd28236ed2a" />
